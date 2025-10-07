@@ -10,9 +10,9 @@
   
 <div align="center">
 
-[straw 💉](https://danganyuri.straw.page/)
-[pronouns 🕶️](https://pronouns.cc/@ghostlysorrows)  
-
+[straw](https://danganyuri.straw.page/)
+&nbsp;&nbsp;&nbsp;
+[pronouns](https://pronouns.cc/@ghostlysorrows)  &nbsp;&nbsp;&nbsp;
 [linktree](https://linktr.ee/ghostlysorrows)
 
 
