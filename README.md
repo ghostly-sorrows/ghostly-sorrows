@@ -14,8 +14,8 @@
 <div align="center">
 
 [straw](https://reverse1999.straw.page/)
-&nbsp;&nbsp;|
-[guns.lol](https://guns.lol/ghostlady)
+&nbsp;|
+[carrd](https://ghostlady.carrd.co)
 &nbsp;|
 [linktree](https://linktr.ee/ghostlysorrows)
 &nbsp;&nbsp;
