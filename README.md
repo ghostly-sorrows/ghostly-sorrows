@@ -13,7 +13,7 @@
 
 <div align="center">
 
-[straw](https://danganyuri.straw.page/)
+[straw](https://reverse1999.straw.page/)
 &nbsp;&nbsp;|
 [guns.lol](https://guns.lol/ghostlady)
 &nbsp;|
