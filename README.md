@@ -5,9 +5,9 @@
 <div align="center">
 
 [💉](https://github.com/ghostly-sorrows)
-&nbsp;. 
+&nbsp;⋆
 [🕶️](https://github.com/fourhundredroses)
-&nbsp;. 
+&nbsp;⋆
 [🫖](https://github.com/scagpilledd)
 &nbsp;
 
@@ -15,8 +15,7 @@
 
 [straw](https://reverse1999.straw.page/)
 &nbsp;|
-[carrd](https://ghostlady.carrd.co)
-&nbsp;|
+[carrd](https://ghostlady.carrd.co)&nbsp;|
 [linktree](https://linktr.ee/ghostlysorrows)
 &nbsp;&nbsp;
 
