@@ -17,4 +17,4 @@
 [linktree](https://linktr.ee/ghostlysorrows)
 &nbsp;&nbsp;
 
-<p align="center"> <sub> art by :reverse 1999</p>
+<p align="center"> <sub> art by : reverse 1999</p>
