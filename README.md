@@ -7,7 +7,7 @@
 <div align="center">
   
   &nbsp;&nbsp;
-[straw](https://reverse1999.straw.page/)⠀
+[straw](https://puppiess.straw.page/)
 [carrd](https://ananleee.carrd.co/) &nbsp;
 [linktree](https://linktr.ee/ghostlysorrows)
 &nbsp;&nbsp;
