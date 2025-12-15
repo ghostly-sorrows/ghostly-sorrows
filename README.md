@@ -8,7 +8,7 @@
   
   &nbsp;&nbsp;
 [straw](https://reverse1999.straw.page/)⠀
-[carrd](https://ananleee.carrd.co/)
+[carrd](https://ananleee.carrd.co/) &nbsp;
 [linktree](https://linktr.ee/ghostlysorrows)
 &nbsp;&nbsp;
 
