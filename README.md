@@ -1,4 +1,4 @@
-![image](https://static.wikia.nocookie.net/reverse1999/images/2/22/Kakania_Garment1.png/revision/latest?cb=20240603154309)
+![image](https://static.wikia.nocookie.net/deltarune/images/5/52/Susie_battle_rudebuster.gif/revision/latest?cb=20211025124753)
 
 <div align="center">
 
