@@ -1,6 +1,7 @@
 
 
-![image](https://static.wikia.nocookie.net/deltarune/images/5/52/Susie_battle_rudebuster.gif/revision/latest?cb=20211025124753)
+![image](https://github.com/user-attachments/assets/5ea25b8b-dcaa-405c-940d-8ea3a05d9ccf)
+
 
 <div align="center">
 
