@@ -1,7 +1,6 @@
 
 
-![image](https://github.com/user-attachments/assets/5ea25b8b-dcaa-405c-940d-8ea3a05d9ccf)
-
+![image](https://static.wikia.nocookie.net/reverse1999/images/2/22/Kakania_Garment1.png/revision/latest?cb=20240603154309)
 
 <div align="center">
 
