@@ -1,6 +1,6 @@
 
 
-![image](https://static.wikia.nocookie.net/reverse1999/images/4/4a/Kakania_Garment3.png/revision/latest/scale-to-width-down/450?cb=20260110165224)
+![image](https://static.wikia.nocookie.net/p__/images/b/b0/Anime_Riyo_Render.png/revision/latest?cb=20251021173613&path-prefix=protagonist)
 
 <div align="center">
 
