@@ -10,7 +10,7 @@
   
 &nbsp;&nbsp;
 [straw](https://puppiess.straw.page/) &nbsp;
-[carrd](https://ananleee.carrd.co/) &nbsp;
+[carrd](https://tokomaruu.carrd.co/) &nbsp;
 [linktree](https://linktr.ee/ghostlysorrows)
 &nbsp;&nbsp;
 
