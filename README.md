@@ -9,7 +9,7 @@
 <div align="center">
   
 &nbsp;&nbsp;
-[straw](https://puppiess.straw.page/) &nbsp;
+[straw](https://stilzasiblings.straw.page/) &nbsp;
 [carrd](https://tokomaruu.carrd.co/) &nbsp;
 [linktree](https://linktr.ee/ghostlysorrows)
 &nbsp;&nbsp;
