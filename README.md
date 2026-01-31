@@ -1,3 +1,5 @@
+<div align="center">
+  
 <img width="350" height="63" alt="image" src="https://github.com/user-attachments/assets/41359f66-bdb2-4aa4-91da-f5158dce968a" />
 
 ![image](https://static.wikia.nocookie.net/gachiakuta/images/4/45/Amo_New_Outfit.png/revision/latest?cb=20250308181724)
