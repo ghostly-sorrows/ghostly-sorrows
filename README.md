@@ -5,6 +5,7 @@
 <div align="center">
 
 ⤫ . c+h/int is okay ꒷ sometimes offtab/afk - w2i ᵎᵎ
+⤫ . dnc ꒷ inspo is okay ᵎᵎ
 
 <div align="center">
 
@@ -13,9 +14,8 @@
 [prns.cc](https://pronouns.cc/@ghostly-sorrows)&nbsp; ⸝⸝ ☆
 
 &nbsp;&nbsp;
-[lovemail](https://lovemailz.carrd.co)𓏵
+[lovemail](https://lovemailz.carrd.co) 𓏵
 [linktree](https://linktr.ee/ghostlysorrows)
 &nbsp;&nbsp; ⸝⸝ ☆
 
-<p align="center"> <sub> </p>
-remaking this shitty github
+<img width="350" height="63" alt="image" src="https://github.com/user-attachments/assets/41359f66-bdb2-4aa4-91da-f5158dce968a" />
