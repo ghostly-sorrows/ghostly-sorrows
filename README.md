@@ -8,9 +8,13 @@
 
 <div align="center">
   
+
+[ata](https://empool.atabook.org)&nbsp;
+[straw](https://stilzasiblings.straw.page/)&nbsp;
+[prns.cc](https://pronouns.cc/@ghostly-sorrows)&nbsp;
+
 &nbsp;&nbsp;
-[straw](https://stilzasiblings.straw.page/) &nbsp;
-[carrd](https://tokomaruu.carrd.co/) &nbsp;
+[lovemail](https://lovemailz.carrd.co)
 [linktree](https://linktr.ee/ghostlysorrows)
 &nbsp;&nbsp;
 
