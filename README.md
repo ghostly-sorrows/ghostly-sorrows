@@ -7,7 +7,8 @@
 <div align="center">
 
 ⤫ . c+h/int is okay ꒷ sometimes offtab/afk - w2i ᵎᵎ
-&nbsp; ⤫ . dnc ꒷ inspo is okay ᵎᵎ
+&nbsp; 
+⤫ . dnc ꒷ inspo is okay ᵎᵎ
 
 <div align="center">
 
