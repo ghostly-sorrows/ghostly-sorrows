@@ -1,22 +1,21 @@
+<img width="350" height="63" alt="image" src="https://github.com/user-attachments/assets/41359f66-bdb2-4aa4-91da-f5158dce968a" />
 
+![image](https://static.wikia.nocookie.net/gachiakuta/images/4/45/Amo_New_Outfit.png/revision/latest?cb=20250308181724)
 
-![image](https://static.wikia.nocookie.net/p__/images/b/b0/Anime_Riyo_Render.png/revision/latest?cb=20251021173613&path-prefix=protagonist)
+<div align="center">
+
+⤫ . c+h/int is okay ꒷ sometimes offtab/afk - w2i ᵎᵎ
 
 <div align="center">
 
-
-
-<div align="center">
-  
-
-[ata](https://empool.atabook.org)&nbsp;
-[straw](https://stilzasiblings.straw.page/)&nbsp;
-[prns.cc](https://pronouns.cc/@ghostly-sorrows)&nbsp;
+  ♱ ୭ ˚ links : [ata](https://empool.atabook.org)&nbsp;𓏵
+[straw](https://stilzasiblings.straw.page/)&nbsp;𓏵
+[prns.cc](https://pronouns.cc/@ghostly-sorrows)&nbsp; ⸝⸝ ☆
 
 &nbsp;&nbsp;
-[lovemail](https://lovemailz.carrd.co)
+[lovemail](https://lovemailz.carrd.co)𓏵
 [linktree](https://linktr.ee/ghostlysorrows)
-&nbsp;&nbsp;
+&nbsp;&nbsp; ⸝⸝ ☆
 
 <p align="center"> <sub> </p>
 remaking this shitty github
