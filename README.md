@@ -15,9 +15,10 @@
 
   ♱ ୭ ˚ links : [ata](https://empool.atabook.org)&nbsp;𓏵
 [straw](https://stilzasiblings.straw.page/)&nbsp;𓏵
-[prns.cc](https://pronouns.cc/@ghostly-sorrows)&nbsp; ⸝⸝ ☆
+[rentry](https://rentry.co/ghostly-sorrowss)&nbsp; ⸝⸝ ☆
 
 &nbsp;&nbsp; ♱ ୭ ˚ ♡ : 
+[prns.cc](https://pronouns.cc/@ghostly-sorrows) 𓏵
 [lovemail](https://lovemailz.carrd.co) 
 &nbsp; ⸝⸝ ☆
 
