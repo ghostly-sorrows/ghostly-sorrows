@@ -17,7 +17,7 @@
 [straw](https://stilzasiblings.straw.page/)&nbsp;𓏵
 [prns.cc](https://pronouns.cc/@ghostly-sorrows)&nbsp; ⸝⸝ ☆
 
-&nbsp;&nbsp; ♱ ୭ ˚ ♡
+&nbsp;&nbsp; ♱ ୭ ˚ ♡ : 
 [lovemail](https://lovemailz.carrd.co) 
 &nbsp; ⸝⸝ ☆
 
