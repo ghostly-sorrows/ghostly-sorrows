@@ -13,8 +13,8 @@
 
 <div align="center">
 
-  ♱ ୭ ˚ links : [ata](https://empool.atabook.org)&nbsp;𓏵
-[straw](https://stilzasiblings.straw.page/)&nbsp;𓏵
+  ♱ ୭ ˚ links : [ataboo](https://empool.atabook.org)&nbsp;𓏵
+[strawp](https://stilzasiblings.straw.page/)&nbsp;𓏵
 [rentry](https://rentry.co/ghostly-sorrowss)&nbsp; ⸝⸝ ☆
 
 &nbsp;&nbsp; ♱ ୭ ˚ ♡ : 
