@@ -15,7 +15,7 @@
 
   ♱ ୭ ˚ links : [ataboo](https://empool.atabook.org)&nbsp;𓏵
 [strawp](https://stilzasiblings.straw.page/)&nbsp;𓏵
-[rentry](https://rentry.co/ghostly-sorrowss)&nbsp; ⸝⸝ ☆
+[rentry](https://rentry.co/invienna)&nbsp; ⸝⸝ ☆
 
 &nbsp;&nbsp; ♱ ୭ ˚ ♡ : 
 [prns.cc](https://pronouns.cc/@ghostly-sorrows) 𓏵
