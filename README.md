@@ -11,7 +11,7 @@
 
 ⤫ . dnc ꒷ inspo is okay ᵎᵎ
 
-![image](https://github.com/user-attachments/assets/adec3fd0-dfb6-4648-9768-eb5a9f5e39f2)
+![image](https://github.com/user-attachments/assets/84876c11-312c-4a14-864a-24c29f00bb13)
 
 <div align="center">
 
