@@ -1,29 +1,22 @@
 <div align="center">
   
-<img width="450" height="63" alt="image" src="https://github.com/user-attachments/assets/41359f66-bdb2-4aa4-91da-f5158dce968a" />
-
-![image](https://github.com/user-attachments/assets/64bb30dd-bf45-405a-b935-1a4467485507)
+<img width="470" height="63" alt="image" src="https://github.com/user-attachments/assets/41359f66-bdb2-4aa4-91da-f5158dce968a" />
 
 <div align="center">
 
-⤫ . c+h/int is okay ꒷ sometimes offtab/afk - w2i ᵎᵎ
+✧ c+h always! offtb - w2i ‎ ⸝⸝ ‎ dnc - inspo is okay ✧
 
-
-⤫ . dnc ꒷ inspo is okay ᵎᵎ
-
-![image](https://github.com/user-attachments/assets/84876c11-312c-4a14-864a-24c29f00bb13)
+![image](https://github.com/user-attachments/assets/4664ffa3-6fec-4fcb-964f-1ca8a35ccba1)
 
 <div align="center">
 
-  ♱ ୭ ˚ links : [ataboo](https://empool.atabook.org)&nbsp;𓏵
+[ataboo](https://empool.atabook.org)&nbsp;𓏵
 [strawp](https://stilzasiblings.straw.page/)&nbsp;𓏵
-[rentry](https://rentry.co/invienna)&nbsp; ⸝⸝ ☆
-
-&nbsp;&nbsp; ♱ ୭ ˚ ♡ : 
+[rentry](https://rentry.co/invienna)&nbsp; 𓏵 
 [prns.cc](https://pronouns.cc/@ghostly-sorrows) 𓏵
-[lovemail](https://lovemailz.carrd.co) 
-&nbsp; ⸝⸝ ☆
+[guns](https://guns.lol/ghostly_sorrows) 
+&nbsp;
 
-![image](https://github.com/user-attachments/assets/fce0c8e6-93d5-42e6-b9a4-f35ae6f70991)
+![image](https://github.com/user-attachments/assets/2a0732c4-8453-4d12-8777-ab69e619248e)
 
-<img width="450" height="63" alt="image" src="https://github.com/user-attachments/assets/41359f66-bdb2-4aa4-91da-f5158dce968a" />
+<img width="470" height="63" alt="image" src="https://github.com/user-attachments/assets/41359f66-bdb2-4aa4-91da-f5158dce968a" />
