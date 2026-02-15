@@ -11,7 +11,7 @@
 <div align="center">
 
 [ataboo](https://empool.atabook.org)&nbsp;𓏵
-[strawp](https://stilzasiblings.straw.page/)&nbsp;𓏵
+[strawp](https://mamassecondbest.straw.page)&nbsp;𓏵
 [rentry](https://rentry.co/invienna)&nbsp; 𓏵 
 [prns.cc](https://pronouns.cc/@ghostly-sorrows) 𓏵
 [guns](https://guns.lol/ghostly_sorrows) 
