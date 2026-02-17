@@ -4,7 +4,7 @@
 
 <div align="center">
 
-c+h always!&nbsp; ⸝⸝ ‎&nbsp;offtab - w2i!
+c+h always!&nbsp; ♡ ‎&nbsp;offtab - w2i!
 
 ![image](https://github.com/user-attachments/assets/4664ffa3-6fec-4fcb-964f-1ca8a35ccba1)
 
