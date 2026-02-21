@@ -12,7 +12,7 @@ c+h always!&nbsp; ♡ ‎&nbsp;offtab - w2i!
 <div align="center">
 
 [ataboo](https://empool.atabook.org)&nbsp;𓏵
-[strawp](https://mamassecondbest.straw.page)&nbsp;𓏵
+[strawp](https://anexchange.straw.page/)&nbsp;𓏵
 [rentry](https://rentry.co/invienna)&nbsp;𓏵
 [lovemail](https://lovemailz.carrd.co)&nbsp;
 
