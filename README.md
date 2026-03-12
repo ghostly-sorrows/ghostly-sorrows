@@ -6,7 +6,7 @@
 
 c+h always!&nbsp; ♡ ‎&nbsp;offtab - w2i!
 
-![image](https://github.com/user-attachments/assets/92032ec3-2d6f-41ea-8ea0-e344fdfdab0f)
+![image](https://i.pinimg.com/736x/ce/00/b3/ce00b315b659dd480a0642022d4f305a.jpg)
 
 
 <div align="center">
