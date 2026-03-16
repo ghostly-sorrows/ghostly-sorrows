@@ -11,4 +11,4 @@ c+h always!&nbsp; ♡ ‎&nbsp;offtab - w2i!
 [rentry](https://rentry.co/mycreamsoda)&nbsp;𓏵
 [lovemail](https://lovemailz.carrd.co)&nbsp;
 
-rework on links.. soon
+
