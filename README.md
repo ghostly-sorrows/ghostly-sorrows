@@ -8,6 +8,6 @@ c+h always! &nbsp; ♡ ‎&nbsp; offtab - w2i!
 
 [ataboo](https://empool.atabook.org)&nbsp;𓏵
 [strawp](https://ghostlywitch.straw.page)&nbsp;𓏵
-[rentry](https://rentry.co/mycreamsoda)&nbsp;
+[rentry](https://rentry.co/newg3nesis)&nbsp;
 
 
