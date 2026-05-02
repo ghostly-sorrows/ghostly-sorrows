@@ -4,7 +4,7 @@
 
 <div align="center">
 
-c+h ˒ enc &nbsp;>ᵥ_ᵥ<&nbsp; offtb ˒ w2i
+c+h ˒˒ enc &nbsp;>ᵥ_ᵥ<&nbsp; offtb ˒˒ w2i
 
 [ataboo](https://empool.atabook.org)&nbsp;×
 [strawp](https://ghostlywitch.straw.page)&nbsp;×
