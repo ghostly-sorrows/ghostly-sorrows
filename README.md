@@ -4,8 +4,6 @@
 
 <div align="center">
 
-c+h - enc &nbsp;>ᵥ_ᵥ<&nbsp; offtb - w2i
-
 [ataboo](https://empool.atabook.org)&nbsp;×
 [strawp](https://707apartment.straw.page/)&nbsp;×
 [rentry](https://rentry.co/newg3nesis)&nbsp;
