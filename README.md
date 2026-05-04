@@ -1,6 +1,7 @@
 <div align="center">
 
-![image](https://images.shoutwiki.com/jojoss/7/70/Unit_Trish_Una_%28Login_Bonus%29.png)
+<img width="500" height="555" alt="image" src="https://github.com/user-attachments/assets/33b93ba3-8a0e-4d42-a109-608ff1e452f7" />
+
 
 <div align="center">
 
