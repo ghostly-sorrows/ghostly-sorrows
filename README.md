@@ -1,7 +1,6 @@
 <div align="center">
 
-## ![image](https://images.shoutwiki.com/jojoss/7/70/Unit_Trish_Una_%28Login_Bonus%29.png)
-
+![image](https://images.shoutwiki.com/jojoss/7/70/Unit_Trish_Una_%28Login_Bonus%29.png)
 
 <div align="center">
 
