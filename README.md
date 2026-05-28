@@ -1,9 +1,7 @@
 <div align="center">
 
+#### [ATA](https://higashikata.atabook.org)&nbsp; [RENTRY](https://rentry.co/newg3nesis)&nbsp; [LISTO](https://listography.com/6309721752?m=0580652416)
 
-#### [𝘼𝙏𝘼](https://higashikata.atabook.org)&nbsp;　　[𝙍𝙀𝙉𝙏𝙍𝙔](https://rentry.co/newg3nesis)&nbsp;　　[𝙇𝙄𝙎𝙏𝙊](https://listography.com/6309721752?m=0580652416)
-
-
-remaking this ugly thing idk
+<img src="https://laobi.icu" alt="Profile Views" />
 
 </div>
