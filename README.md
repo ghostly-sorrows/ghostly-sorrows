@@ -1,6 +1,6 @@
 <div align = center>
 
-⠀ ⠀⠀⠀![Github Views](https://views.igorkowalczyk.dev/api/badge/YOUR-USERNAME?label=♡︎⠀cuties⠀&color=ff69b4&style=classic)
+⠀ ⠀⠀⠀![Github Views](https://views.igorkowalczyk.dev/api/badge/YOUR-USERNAME?label=♡︎⠀cuties⠀&color=ff69b4&style=classic&format=long)
 
  ⠀⠀⠀⠀
 ![Image](https://i.pinimg.com/736x/4b/5d/dc/4b5ddce0ad1756eca43c69cbdca58de9.jpg) 
