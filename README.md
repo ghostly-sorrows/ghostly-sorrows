@@ -6,4 +6,4 @@
 
 
 
-#### [**ATABOOK**](https://higashikata.atabook.org) &nbsp;&nbsp;&nbsp; [**RENTRY**](https://rentry.co/moriohchoo) &nbsp;&nbsp;&nbsp; [LISTO](https://listography.com/6309721752?m=0580652416)
+#### [**ATABOOK**](https://higashikata.atabook.org)&nbsp;&nbsp;&nbsp; [**RENTRY**](https://rentry.co/moriohchoo)&nbsp;&nbsp;&nbsp; [LISTO](https://listography.com/6309721752?m=0580652416)
