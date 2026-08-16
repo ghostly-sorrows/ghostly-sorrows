@@ -1,8 +1,32 @@
-<div align = center>
+<div align="center">
 
-![](https://komarev.com/ghpvc/?username=ghostly-sorrows&color=D3D3D3&label=cuties&base=4200)
+─────────────────────────────────────────────────────
 
-![Image](https://i.pinimg.com/736x/02/17/4e/02174e5d99ace02a4f6d8dd1f77e6d26.jpg)
+<table border="0" cellpadding="0" cellspacing="0" width="100%" style="border-collapse: collapse; border: none;">
+  <tr>
+    <td width="80%" valign="middle" align="center" style="border: none; padding-right: 15px;">
+      <img src="https://github.com/user-attachments/assets/4f4069a6-14db-46be-ad73-f7011f99922c" width="90%" alt="image">  
+<td width="60%" valign="top" align="center" style="border: none;">
+  &nbsp;
+<img src="https://i.pinimg.com/originals/26/93/7d/26937d289cfa95caac8275803a34056d.gif" width="300" height="10">
+  &nbsp;
+  
+![](https://komarev.com/ghpvc/?username=ghostly-sorrows&color=663399&label=　cuties　ɞ　&base=4200)
+
+<img src="https://github.com/user-attachments/assets/4afcca1f-e28a-4047-b731-559c19bc2f90" width="300" height="65">
+      
+[𝗜𝗡𝗙𝗢](https://fluffle.cc/ap0thecary)&nbsp;&nbsp; . &nbsp;[𝗔𝗧𝗔𝗕𝗢𝗢𝗞](https://specter.atabook.org/)&nbsp;&nbsp; . &nbsp;[𝗟𝗜𝗦𝗧𝗢](https://listography.com/6309721752?m=0580652416)
+
+<img src="https://i.pinimg.com/originals/26/93/7d/26937d289cfa95caac8275803a34056d.gif" width="300" height="10">
+
+ </td>
+  </tr>
+</table>
+
+─────────────────────────────────────────────────────
 
 
-#### [𝗶𝗻𝗳𝗼](https://fluffle.cc/ap0thecary)&nbsp;&nbsp;&nbsp; [𝗮𝘁𝗮𝗯𝗼𝗼𝗸](https://specter.atabook.org)&nbsp;&nbsp;&nbsp; [𝗹𝗶𝘀𝘁𝗼](https://listography.com/6309721752?m=0580652416)
+
+
+
+
