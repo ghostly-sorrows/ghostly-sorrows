@@ -23,7 +23,9 @@
 <details>
   <summary>THE chuds ( ` ᴖ ´ )</summary> 
   
-  [nene](https://github.com/angxlpraize) [ko](https://github.com/opioiid) [zj](https://github.com/bastetngeb)
+  [nene](https://github.com/angxlpraize) [ko](https://github.com/opioiid) [zj](https://github.com/bastetngeb) 　♡
+</details>
+<img src="https://i.pinimg.com/originals/26/93/7d/26937d289cfa95caac8275803a34056d.gif" width="300" height="10">
 
  </td>
   </tr>
