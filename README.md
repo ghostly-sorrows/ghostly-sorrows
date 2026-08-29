@@ -25,7 +25,7 @@
   [nene](https://github.com/angxlpraize) [ko](https://github.com/opioiid) [zj](https://github.com/bastetngeb) 　♡
 </details>
 
-<img src="https://github.com/user-attachments/assets/ba722a0c-34a5-4cfa-90fe-1525f63017e2" width="60" height="60">  ohmygodbru
+<img src="https://github.com/user-attachments/assets/ba722a0c-34a5-4cfa-90fe-1525f63017e2" width="60" height="60">   Wip
   &nbsp;
 
 <img src="https://github.com/user-attachments/assets/46f99315-2835-4ce3-a225-cc241a49fa66" width="300" height="8">
