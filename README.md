@@ -4,9 +4,9 @@
 
 <table border="0" cellpadding="0" cellspacing="0" width="100%" style="border-collapse: collapse; border: none;">
   <tr>
-    <td width="65%" valign="middle" align="center" style="border: none; padding-right: 15px;">
-      <img src="https://github.com/user-attachments/assets/c3e2aabb-c931-4931-a9f4-4a2622a13651" width="80%" height="400" alt="image">  
-<td width="55%" valign="top" align="center" style="border: none;"> 
+    <td width="50%" valign="middle" align="center" style="border: none; padding-right: 15px;">
+      <img src="https://github.com/user-attachments/assets/c3e2aabb-c931-4931-a9f4-4a2622a13651" width="90%" height="400" alt="image">  
+<td width="60%" valign="top" align="center" style="border: none;"> 
 <img src="https://github.com/user-attachments/assets/46f99315-2835-4ce3-a225-cc241a49fa66" width="300" height="5">
   &nbsp;
   
