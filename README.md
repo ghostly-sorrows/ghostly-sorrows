@@ -13,7 +13,7 @@
 
 <img src="https://github.com/user-attachments/assets/6b5ce870-4c68-4893-9c7d-95db49cba75c" width="305" height="55">
 
-[byi](https://fluffle.cc/ap0thecary) ⠀ $$\color{#b4c2b7}\text{♱}$$ ⠀ [ata](https://specter.atabook.org/) ⠀ $$\color{#b4c2b7}\text{♱}$$ ⠀ [list](https://listography.com/6309721752?m=0580652416)
+[byi](https://fluffle.cc/poisonedlife) ⠀ $$\color{#b4c2b7}\text{♱}$$ ⠀ [ata](https://specter.atabook.org/) ⠀ $$\color{#b4c2b7}\text{♱}$$ ⠀ [list](https://listography.com/6309721752?m=0580652416)
 
 $$\color{#8c93a8}\text{𓏲 ๋࣭ ࣪ ˖}$$ <img width="60" height="60" alt="image__8_-removebg-preview" src="https://github.com/user-attachments/assets/c1c8b566-e288-4b38-8f37-a1de24fb2284" />
 <img width="60" height="60" alt="image__9_-removebg-preview" src="https://github.com/user-attachments/assets/460922c3-afbb-4697-9081-989eb2d484e8" /> $$\color{#62476b}\text{⋆ .˚}$$
