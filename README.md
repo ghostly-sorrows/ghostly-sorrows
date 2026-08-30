@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://github.com/user-attachments/assets/46f99315-2835-4ce3-a225-cc241a49fa66" width="700" height="20">
+<img src="https://github.com/user-attachments/assets/46f99315-2835-4ce3-a225-cc241a49fa66" width="705" height="20">
 <table border="0" cellpadding="0" cellspacing="0" width="100%" style="border-collapse: collapse; border: none;">
   <tr>
     <td width="60%" valign="middle" align="center" style="border: none; padding-right: 15px;">
@@ -29,10 +29,9 @@ $$\color{#8c93a8}\text{𓏲 ๋࣭ ࣪ ˖}$$ <img width="60" height="60" alt="im
  </td>
   </tr>
 </table>
-<img src="https://github.com/user-attachments/assets/46f99315-2835-4ce3-a225-cc241a49fa66" width="700" height="20">
+<img src="https://github.com/user-attachments/assets/46f99315-2835-4ce3-a225-cc241a49fa66" width="705" height="20">
 
-<div align="left">
-  &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+<div align="left"> &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
   <img src="https://github.com/user-attachments/assets/ba722a0c-34a5-4cfa-90fe-1525f63017e2" width="60" height="60">
   <a href="https://github.com/pt-hall-of-media">pt-hall-of-media</a>
   <a href="https://github.com/pt-fashion">pt-fashion</a>
