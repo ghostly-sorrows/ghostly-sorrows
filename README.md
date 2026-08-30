@@ -23,7 +23,7 @@ $$\color{#8c93a8}\text{𓏲 ๋࣭ ࣪ ˖}$$ <img width="60" height="60" alt="im
 <details>
   <summary> ⠀  other links</summary> 
   
-  [directory](https://fluffle.cc/mltsuba)
+  [directory](https://fluffle.cc/mltsuba) [lovemail](https://keemail.carrd.co/)
 </details>
 <img width="305" height="30" alt="image__7_-removebg-preview" src="https://github.com/user-attachments/assets/1a6a06b0-1766-466d-a36c-42943477e310" />
  </td>
