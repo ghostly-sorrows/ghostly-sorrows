@@ -21,7 +21,7 @@ $$\color{#8c93a8}\text{𓏲 ๋࣭ ࣪ ˖}$$ <img width="60" height="60" alt="im
 [chud](https://github.com/angxlpraize) &nbsp;&nbsp;&nbsp;&nbsp; [chud](https://github.com/opioiid)
 
 <details>
-  <summary> ⠀  other links</summary> 
+  <summary>$$\color{#4a3055}\text ⠀  {other links}$$</summary> 
   
   [directory](https://fluffle.cc/mltsuba) [lovemail](https://keemail.carrd.co/)
 </details>
