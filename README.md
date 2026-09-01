@@ -23,7 +23,7 @@ $$\color{#8c93a8}\text{𓏲 ๋࣭ ࣪ ˖}$$ <img width="60" height="60" alt="im
 <details>
   <summary>$$\color{#4a3055}\text ⠀  {other links}$$</summary> 
   
-  [guns](https://guns.lol/ghostly_sorrows) [directory](https://fluffle.cc/mltsuba) [lovemail](https://keemail.carrd.co/)
+  [guns](https://guns.lol/ghostly_sorrows)⠀[directory](https://fluffle.cc/mltsuba) 
 </details>
 <img width="305" height="30" alt="image__7_-removebg-preview" src="https://github.com/user-attachments/assets/1a6a06b0-1766-466d-a36c-42943477e310" />
  </td>
