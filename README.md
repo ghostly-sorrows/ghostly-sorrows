@@ -1,34 +1,39 @@
 <div align="center">
 
-<img src="https://github.com/user-attachments/assets/46f99315-2835-4ce3-a225-cc241a49fa66" width="705" height="20">
+<img src="https://github.com/user-attachments/assets/03d2e046-20f8-4f39-be76-0483da2a4f3b" width="705" height="90">
+
+![](https://komarev.com/ghpvc/?username=ghostly-sorrows&color=976465&label=⋆˚࿔　&base=4200)
 <table border="0" cellpadding="0" cellspacing="0" width="100%" style="border-collapse: collapse; border: none;">
   <tr>
-    <td width="50%" valign="middle" align="center" style="border: none; padding-right: 15px;">
-      <img src="https://github.com/user-attachments/assets/c3e2aabb-c931-4931-a9f4-4a2622a13651" width="80%" height="400" alt="image">  
-<td width="40%" valign="top" align="center" style="border: none;"> 
-<img width="305" height="30" alt="image__7_-removebg-preview" src="https://github.com/user-attachments/assets/1a6a06b0-1766-466d-a36c-42943477e310" />
-&nbsp;
+    <td width="70%" valign="middle" align="center" style="border: none; padding-right: 15px;">
+      <img src="https://github.com/user-attachments/assets/a56e4f9c-b4e3-43a2-9a54-c6c24c926a76" width="80%" height="400" alt="image">  
+<td width="50%" valign="top" align="center" style="border: none;"> 
+$\color{#A58F76}\text{⏔⏔⏔}$ 
+$\color{#71515D}\text{꒰}$
+$\color{#976465}\text{᧔ෆ᧓}$
+$\color{#71515D}\text{꒱}$
+$\color{#A58F76}\text{⏔⏔⏔}$
 
-![](https://komarev.com/ghpvc/?username=ghostly-sorrows&color=4a3055&label=　diamonds　⟡　&base=4200)
+[<img width="200" height="100" alt="image" src="https://github.com/user-attachments/assets/63721db7-8763-4bad-b278-2fc38590c2ac" />](https://fluffle.cc/poisonedlife)
 
-<img src="https://github.com/user-attachments/assets/6b5ce870-4c68-4893-9c7d-95db49cba75c" width="305" height="55">
+[<img width="200" height="100" alt="image" src="https://github.com/user-attachments/assets/83423941-ee61-4079-9382-e38f908403f9" />](https://specter.atabook.org/)
 
-[byi](https://fluffle.cc/poisonedlife) ⠀ $$\color{#b4c2b7}\text{♱}$$ ⠀ [ata](https://specter.atabook.org/) ⠀ $$\color{#b4c2b7}\text{♱}$$ ⠀ [list](https://listography.com/6309721752?m=0580652416)
+[<img width="200" height="100" alt="image" src="https://github.com/user-attachments/assets/9ae1bee8-9d30-4dca-8949-a7cd90bc1820" />](https://listography.com/6309721752?m=0580652416)
 
-$$\color{#8c93a8}\text{𓏲 ๋࣭ ࣪ ˖}$$ <img width="60" height="60" alt="image__8_-removebg-preview" src="https://github.com/user-attachments/assets/c1c8b566-e288-4b38-8f37-a1de24fb2284" />
-<img width="60" height="60" alt="image__9_-removebg-preview" src="https://github.com/user-attachments/assets/460922c3-afbb-4697-9081-989eb2d484e8" /> $$\color{#62476b}\text{⋆ .˚}$$
-
-[chud](https://github.com/angxlpraize) &nbsp;&nbsp;&nbsp;&nbsp; [chud](https://github.com/opioiid)
-
-<img width="305" height="30" alt="image__7_-removebg-preview" src="https://github.com/user-attachments/assets/1a6a06b0-1766-466d-a36c-42943477e310" />
+[chud](https://github.com/angxlpraize) &nbsp;&nbsp;&nbsp;&nbsp; [chud](https://github.com/opioiid)    
+$\color{#A58F76}\text{⏔⏔⏔}$ 
+$\color{#71515D}\text{꒰}$
+$\color{#976465}\text{᧔ෆ᧓}$
+$\color{#71515D}\text{꒱}$
+$\color{#A58F76}\text{⏔⏔⏔}$
  </td>
   </tr>
 </table>
-<img src="https://github.com/user-attachments/assets/46f99315-2835-4ce3-a225-cc241a49fa66" width="705" height="20">
-
-<div align="left"> &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
-  <img src="https://github.com/user-attachments/assets/ba722a0c-34a5-4cfa-90fe-1525f63017e2" width="60" height="60">
+<details>
+  <summary>$\color{#71515D}\text{thankyu}$</summary>
   <a href="https://github.com/pt-hall-of-media">pt-hall-of-media</a>
   <a href="https://github.com/pt-fashion">pt-fashion</a>
-  <a href="https://github.com/pt-friendships">pt-friendships</a>⠀ ⠀ ⠀♡
+  <a href="https://github.com/pt-friendships">pt-friendships</a>
+</details>
+<img src="https://github.com/user-attachments/assets/94337bdd-27fb-4c93-ba23-3217c4286d16" width="705" height="90">
 
