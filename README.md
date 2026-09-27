@@ -1,12 +1,14 @@
 <div align="center">
 
-<img src="https://github.com/user-attachments/assets/03d2e046-20f8-4f39-be76-0483da2a4f3b" width="705" height="90">
+![Image](https://github.com/user-attachments/assets/cb8ecf10-fc92-4f38-975e-7c521be23552)
 
-![](https://komarev.com/ghpvc/?username=ghostly-sorrows&color=976465&label=⋆˚࿔　&base=4200)
+
+
+![](https://komarev.com/ghpvc/?username=ghostly-sorrows&color=70659A&label=⋆˚࿔　&base=4200)
 <table border="0" cellpadding="0" cellspacing="0" width="100%" style="border-collapse: collapse; border: none;">
   <tr>
     <td width="70%" valign="middle" align="center" style="border: none; padding-right: 15px;">
-      <img src="https://github.com/user-attachments/assets/a56e4f9c-b4e3-43a2-9a54-c6c24c926a76" width="80%" height="400" alt="image">  
+      <img src="https://github.com/user-attachments/assets/5a39ba91-3d5d-4103-80bd-b4b055fafed9" width="99%" height="550" alt="image">  
 <td width="50%" valign="top" align="center" style="border: none;"> 
 $\color{#A58F76}\text{⏔⏔⏔}$ 
 $\color{#71515D}\text{꒰}$
@@ -35,5 +37,7 @@ $\color{#A58F76}\text{⏔⏔⏔}$
   <a href="https://github.com/pt-fashion">pt-fashion</a>
   <a href="https://github.com/pt-friendships">pt-friendships</a>
 </details>
-<img src="https://github.com/user-attachments/assets/94337bdd-27fb-4c93-ba23-3217c4286d16" width="705" height="90">
+
+![Image](https://github.com/user-attachments/assets/a5ad9987-b77b-4367-acdd-97146d9489c1)
+
 
