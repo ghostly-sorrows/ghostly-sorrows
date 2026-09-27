@@ -5,7 +5,7 @@
 <table border="0" cellpadding="0" cellspacing="0" width="100%" style="border-collapse: collapse; border: none;">
   <tr>
     <td width="70%" valign="middle" align="center" style="border: none; padding-right: 15px;">
-      <img src="https://github.com/user-attachments/assets/b025cdba-1d00-402e-8ddc-cc5dbe6e2163" width="98%" height="550" alt="image">  
+      <img src="https://github.com/user-attachments/assets/d2fbad2a-ee1e-4f24-95a4-8111621074d7" width="98%" height="550" alt="image">  
 <td width="50%" valign="top" align="center" style="border: none;"> 
 
 ![](https://komarev.com/ghpvc/?username=ghostly-sorrows&color=70659A&label=⋆˚࿔　&base=4200)
@@ -16,6 +16,7 @@
 
 [<img width="130" height="140" alt="image" src="https://github.com/user-attachments/assets/1fe6a175-f37f-41ba-854f-5fdf64ab1515" />](https://listography.com/6309721752?m=0580652416)
 
+[chud](https://github.com/angxlpraize) [chud](https://github.com/opioiid)
  </td>
   </tr>
 </table>
@@ -28,4 +29,3 @@
 
 <img width="800" height="150" alt="image" src="https://github.com/user-attachments/assets/ac4029c3-2c48-46f9-9fe1-b52543190465" />
 
-<img width="473" height="750" alt="image" src="https://github.com/user-attachments/assets/d2fbad2a-ee1e-4f24-95a4-8111621074d7" />
