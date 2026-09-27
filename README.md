@@ -10,13 +10,13 @@
 
 ![](https://komarev.com/ghpvc/?username=ghostly-sorrows&color=70659A&label=⋆˚࿔　&base=4200)
 
+[chud](https://github.com/angxlpraize) 　　 [chud](https://github.com/opioiid)
+
 [<img width="130" height="140" alt="image" src= "https://github.com/user-attachments/assets/23dc246b-4930-4cd5-86b2-3839d8f40696" />](https://fluffle.cc/poisonedlife)
 
 [<img width="130" height="140" alt="image" src="https://github.com/user-attachments/assets/8a2d81f8-d66b-4b43-9ff2-ddd91cf8ae0a" />](https://specter.atabook.org/)
 
 [<img width="130" height="140" alt="image" src="https://github.com/user-attachments/assets/1fe6a175-f37f-41ba-854f-5fdf64ab1515" />](https://listography.com/6309721752?m=0580652416)
-
-[chud](https://github.com/angxlpraize) 　　 [chud](https://github.com/opioiid)
 
  </td>
   </tr>
