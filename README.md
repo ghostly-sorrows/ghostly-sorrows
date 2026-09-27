@@ -1,6 +1,6 @@
 <div align="center">
 
-![Image](https://github.com/user-attachments/assets/cb8ecf10-fc92-4f38-975e-7c521be23552)
+<img width="962" height="259" alt="image" src="https://github.com/user-attachments/assets/b2bfb97a-b6ea-45ef-855b-64a4aaf5dd27" />
 
 <table border="0" cellpadding="0" cellspacing="0" width="100%" style="border-collapse: collapse; border: none;">
   <tr>
@@ -28,6 +28,12 @@
   <a href="https://github.com/pt-friendships">pt-friendships</a>
 </details>
 
-![Image](https://github.com/user-attachments/assets/a5ad9987-b77b-4367-acdd-97146d9489c1)
+<img width="962" height="259" alt="image" src="https://github.com/user-attachments/assets/ac4029c3-2c48-46f9-9fe1-b52543190465" />
 
+<img width="473" height="750" alt="image" src="https://github.com/user-attachments/assets/b025cdba-1d00-402e-8ddc-cc5dbe6e2163" />
 
+<img width="1200" height="1200" alt="image" src="https://github.com/user-attachments/assets/8a2d81f8-d66b-4b43-9ff2-ddd91cf8ae0a" />
+
+<img width="1200" height="1200" alt="image" src="https://github.com/user-attachments/assets/23dc246b-4930-4cd5-86b2-3839d8f40696" />
+
+<img width="1200" height="1200" alt="image" src="https://github.com/user-attachments/assets/1fe6a175-f37f-41ba-854f-5fdf64ab1515" />
