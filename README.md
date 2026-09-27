@@ -15,7 +15,6 @@
 [<img width="150" height="160" alt="image" src="https://github.com/user-attachments/assets/14d80ea0-9891-456f-b1b8-41005d8c48c3" />](https://specter.atabook.org/)
 
 [<img width="150" height="160" alt="image" src="https://github.com/user-attachments/assets/ea2615bd-8fc4-460b-b3ce-57fcd15e63d9" />](https://listography.com/6309721752?m=0580652416)
-
 [chud](https://github.com/angxlpraize) &nbsp;&nbsp;&nbsp;&nbsp; [chud](https://github.com/opioiid)   
 
  </td>
