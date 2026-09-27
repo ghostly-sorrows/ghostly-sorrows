@@ -18,6 +18,9 @@
 
 [chud](https://github.com/angxlpraize) &nbsp;&nbsp;&nbsp;&nbsp; [chud](https://github.com/opioiid)   
 
+<img width="2000" height="1000" alt="image" src="https://github.com/user-attachments/assets/7a602692-9bae-456f-8c83-3fe77d7d2823" />
+
+
  </td>
   </tr>
 </table>
