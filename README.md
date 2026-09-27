@@ -16,7 +16,8 @@
 
 [<img width="130" height="140" alt="image" src="https://github.com/user-attachments/assets/1fe6a175-f37f-41ba-854f-5fdf64ab1515" />](https://listography.com/6309721752?m=0580652416)
 
-[chud](https://github.com/angxlpraize) [chud](https://github.com/opioiid)
+[chud](https://github.com/angxlpraize) 　　 [chud](https://github.com/opioiid)
+
  </td>
   </tr>
 </table>
