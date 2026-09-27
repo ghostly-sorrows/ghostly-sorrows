@@ -7,16 +7,14 @@
     <td width="70%" valign="middle" align="center" style="border: none; padding-right: 15px;">
       <img src="https://github.com/user-attachments/assets/5a39ba91-3d5d-4103-80bd-b4b055fafed9" width="98%" height="550" alt="image">  
 <td width="50%" valign="top" align="center" style="border: none;"> 
-  
-&nbsp;
 
 ![](https://komarev.com/ghpvc/?username=ghostly-sorrows&color=70659A&label=⋆˚࿔　&base=4200)
 
-[<img width="200" height="100" alt="image" src="https://github.com/user-attachments/assets/63721db7-8763-4bad-b278-2fc38590c2ac" />](https://fluffle.cc/poisonedlife)
+[<img width="150" height="160" alt="image" src="https://github.com/user-attachments/assets/7c3e5b4f-5ced-42f9-96b7-33306f95fc00" />](https://fluffle.cc/poisonedlife)
 
-[<img width="200" height="100" alt="image" src="https://github.com/user-attachments/assets/83423941-ee61-4079-9382-e38f908403f9" />](https://specter.atabook.org/)
+[<img width="150" height="160" alt="image" src="https://github.com/user-attachments/assets/14d80ea0-9891-456f-b1b8-41005d8c48c3" />](https://specter.atabook.org/)
 
-[<img width="200" height="100" alt="image" src="https://github.com/user-attachments/assets/9ae1bee8-9d30-4dca-8949-a7cd90bc1820" />](https://listography.com/6309721752?m=0580652416)
+[<img width="150" height="160" alt="image" src="https://github.com/user-attachments/assets/ea2615bd-8fc4-460b-b3ce-57fcd15e63d9" />](https://listography.com/6309721752?m=0580652416)
 
 [chud](https://github.com/angxlpraize) &nbsp;&nbsp;&nbsp;&nbsp; [chud](https://github.com/opioiid)   
 
