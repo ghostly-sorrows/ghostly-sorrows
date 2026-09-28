@@ -1,3 +1,4 @@
+<div align="center">
   <table border="0" cellpadding="0" cellspacing="0" width="100%" style="border-collapse: collapse; border: none;">
   <tr>
     <td width="70%" valign="middle" align="center" style="border: none; padding-right: 15px;">
