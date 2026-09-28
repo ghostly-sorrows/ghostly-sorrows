@@ -14,11 +14,11 @@ $\color{#A89293}\text{ᨳ}$ $\color{#83677a}\text{𐔌՞}$ $\color{#ADC9B9}\text
 [chud](https://github.com/angxlpraize) 　　 [chud](https://github.com/opioiid)
 
   
-[<img width="255" height="120" alt="image" src="https://github.com/user-attachments/assets/5c780942-9c52-42cd-bd51-0ed39c7b3b27" />](https://specter.atabook.org/)
+[<img width="265" height="120" alt="image" src="https://github.com/user-attachments/assets/5c780942-9c52-42cd-bd51-0ed39c7b3b27" />](https://specter.atabook.org/)
 
 $\color{#A89293}\text{⏔⏔⏔}$ $\color{#ADC9B9}\text{꒰}$ $\color{#83677a}\text{᧔ෆ᧓}$ $\color{#ADC9B9}\text{꒱}$ $\color{#A89293}\text{⏔⏔⏔}$
 
-[<img width="255" height="120" alt="image" src="https://github.com/user-attachments/assets/3df0b7b1-584a-4243-a4eb-be584f2ce048" />](https://fluffle.cc/schoolboy)
+[<img width="265" height="120" alt="image" src="https://github.com/user-attachments/assets/3df0b7b1-584a-4243-a4eb-be584f2ce048" />](https://fluffle.cc/schoolboy)
 
 <details>
   <summary>$\color{#83677a}\text{awards}$</summary>
