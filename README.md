@@ -25,7 +25,7 @@ $\color{#83677a}\text{babas:}$
   <a href="https://github.com/lovethreat">lex</a>
   <a href="https://github.com/italypasta">yuna</a>
 
-$\color{#A89293}\text{more on my}$ $\color{#ADC9B9}\text{lovemail~}$
+$\color{#A89293}\text{more on my}$ $\color{#ADC9B9}\text{lovemail~~}$
   </details>
   
 [<img width="265" height="120" alt="image" src="https://github.com/user-attachments/assets/5c780942-9c52-42cd-bd51-0ed39c7b3b27" />](https://specter.atabook.org/)
