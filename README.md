@@ -12,7 +12,7 @@ $\color{#A89293}\text{ᨳ}$ $\color{#83677a}\text{𐔌՞}$ $\color{#ADC9B9}\text
 ![](https://komarev.com/ghpvc/?username=ghostly-sorrows&color=83677a&label=　𑄝　&base=4200)
 
 <details>
-  <summary>$\color{#ADC9B9}\text{₊˚⊹ ᰔ}$</summary>
+  <summary>$\color{#ADC9B9}\text{₊˚⊹}$ $\color{#A89293}\text{ᰔ}$</summary>
 $\color{#A89293}\text{cute chuds:}$
  <a href="https://github.com/angxlpraize">nene</a>
   <a href="https://github.com/opioiid">ko</a>
