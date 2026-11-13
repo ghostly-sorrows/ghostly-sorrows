@@ -11,9 +11,20 @@ $\color{#A89293}\text{ᨳ}$ $\color{#83677a}\text{𐔌՞}$ $\color{#ADC9B9}\text
 
 ![](https://komarev.com/ghpvc/?username=ghostly-sorrows&color=83677a&label=　𑄝　&base=4200)
 
+<details>
+  <summary>$\color{#ADC9B9}\text{₊˚⊹ ᰔ}$</summary>
+$\color{#A89293}\text{cute chuds:}$
+ <a href="https://github.com/angxlpraize">nene</a>
+  <a href="https://github.com/opioiid">ko</a>
+  <a href="https://github.com/bastetngeb">zj</a>
+  <a href="https://github.com/dsm6">jamie</a>
 
-[chud](https://github.com/angxlpraize) 　　 [chud](https://github.com/opioiid)
-
+$\color{#83677a}\text{babas:}$
+  <a href="https://github.com/0rmnff">jace</a>
+  <a href="https://github.com/YUFF1E">otsu</a>
+  <a href="https://github.com/lovethreat">lex</a>
+  <a href="https://github.com/italypasta">yuna</a>
+</details>
   
 [<img width="265" height="120" alt="image" src="https://github.com/user-attachments/assets/5c780942-9c52-42cd-bd51-0ed39c7b3b27" />](https://specter.atabook.org/)
 
